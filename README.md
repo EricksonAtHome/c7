@@ -1,1 +1,1 @@
-# c7
+# C7  (Central Generation Seven)
